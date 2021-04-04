@@ -1,2 +1,2 @@
 # suc-sgor.github.io
-Ostern
+Frohe Ostern für Freunde und Familie!!
